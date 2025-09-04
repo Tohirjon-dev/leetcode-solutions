@@ -1,1 +1,1 @@
-Umumiy yechilgan masalalar soni: 15 ta
+Umumiy yechilgan masalalar soni: 20 ta
